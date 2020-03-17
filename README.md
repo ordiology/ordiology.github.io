@@ -1,1 +1,0 @@
-# ordiology.github.io
